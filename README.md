@@ -1,3 +1,2 @@
-# hello-world
-Radek ma 2IQ
-by Radek Jasinski
+# KOZAKI.MP2 INC
+ALL RIGHTS RESERVED
